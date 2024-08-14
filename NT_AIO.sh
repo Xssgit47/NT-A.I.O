@@ -352,7 +352,7 @@ color='#FFFF00'><b> ★ [ ༆Hʸᵖᵉʳ᭄W̺͆E̺͆L̺͆C̺͆O̺͆M̺͆E̺͆ T
 <font color="#FF0000">❖Ƭʜᴇ No Torrent</font><br> <font 
 color="#FFB1C2">❖Ƭʜᴇ No Bokep </font><br> <font color="#FFFFFF">❖Ƭʜᴇ No 
 Hacking</font><br> <font color="#00FF00">❖Ƭʜᴇ No LODA-LASSAN</font><br> <font 
-color="#00FF00">▄︻デDADDY DANGER══━一 </font><br> <font 
+color="#00FF00">▄︻デTHE DADDY DANGER══━一 </font><br> <font 
 color="#00FFE2">क═══════क⊹⊱✫⊰⊹क═══════क</font><br></font><br><font 
 color="FFFF00">@FNxDANGER</font><br>
 END
